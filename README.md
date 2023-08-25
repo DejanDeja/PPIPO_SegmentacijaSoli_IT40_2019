@@ -1,0 +1,1 @@
+# PPIPO_SegmentacijaSoli_IT40_2019
